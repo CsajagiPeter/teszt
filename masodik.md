@@ -1,0 +1,1 @@
+körte (fa me méne)
